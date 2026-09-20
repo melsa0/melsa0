@@ -1,6 +1,6 @@
 # Hi, I'm Melsa 🦔
 
-Electrical-Electronics Engineer.
+Electrical-Electronics Engineer with a background in defence & space, working on my own projects on the side.
 
 ## 🛰️ Space
 
